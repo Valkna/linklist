@@ -1,12 +1,12 @@
 Links uteis para mantermos contato:
 
-Instagram (http://www.instagram.com/valkna)
+Instagram http://www.instagram.com/valkna
 
-Twitter (https://twitter.com/valkna)
+Twitter https://twitter.com/valkna
 
-Facebook (http://www.facebook.com/valknalol
+Facebook http://www.facebook.com/valknalol
 
-E-mail (vnsduarte@gmail.com)
+E-mail vnsduarte@gmail.com
 
 Telegram https://t.me/Valkna
 
