@@ -8,6 +8,6 @@ Facebook (http://www.facebook.com/valknalol
 
 E-mail (vnsduarte@gmail.com)
 
-Telegram @valkna
+Telegram https://t.me/Valkna
 
 
